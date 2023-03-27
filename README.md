@@ -1,0 +1,1 @@
+By signing in you confirm that you are 18 years of age or over, of sound mind capable of taking responsibility for your own actions & are in proper jurisdiction, and have read and agreed to our terms of service.
